@@ -1,4 +1,4 @@
-#  
+#  Experience pull lucky blocks like never before with advanced Scripts for pull lucky blocks, the #1 Script. Includes auto-upgrade and speed for
 
 
 
